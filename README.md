@@ -1,16 +1,16 @@
 ‎ <p align="center">
 [![Untitled126-20250516032630.png](https://i.postimg.cc/fbMJFYpT/Untitled126-20250516032630.png)](https://postimg.cc/NKPs22QW)</br>
 [![image.png](https://i.postimg.cc/hvxxLh1m/image.png)](https://postimg.cc/y31kB156)
-<h2 align="center"> $${\color{#EAD6BE}  　 READ \space \space BEFORE \space INTERACT \space .ᐟ}$$ </h2>
+<h2 align="center"> $${\color{#DEB669}  　 READ \space \space BEFORE \space INTERACT \space .ᐟ}$$ </h2>
 ‎
 ‎ <p align="center">
-( ♡ )
+$${\color{#D9A860}( ♡ )}$$
 
  <p align="center">
-🍗 ⪖ ORI ✙ HE/THEY⠀ANY ,, CST </br>
-ıl IWC ; OSDD ⏖ CPTSD ⋆ BPD ! 
-Usually afk ◈ c+h & ints welcomed ,, </br>
-ASK 4 FRONT ; no dni, block freely </br> </br>‎ 
+🍗 ⪖ $${\color{#EAD6BE} ORI \space ✙ \space HE/THEY}$$⠀ANY ,, CST </br>
+ıl $${\color{#D9A860}IWC}$$ ; OSDD ⏖ CPTSD ⋆ BPD ! 
+Usually Afk ◈ c+h & ints welcomed ,, </br>
+$${\color{#EAD6BE}ASK \space 4 \space FRONT}$$ ; no dni, block freely </br> </br>‎ 
  <p align="center">
 
 ‎ <p align="center">
