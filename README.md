@@ -1,16 +1,21 @@
-## Hi there 👋
+‎ <p align="center">
+[![Untitled126-20250516032630.png](https://i.postimg.cc/fbMJFYpT/Untitled126-20250516032630.png)](https://postimg.cc/NKPs22QW)</br>
+[![image.png](https://i.postimg.cc/hvxxLh1m/image.png)](https://postimg.cc/y31kB156)
+<h2 align="center"> $${\color{#EAD6BE}  　 READ \space \space BEFORE \space INTERACT \space .ᐟ}$$ </h2>
+‎
+‎ <p align="center">
+( ♡ )
 
-<!--
-**iIIumina/iIIumina** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ <p align="center">
+🍗 ⪖ ORI ✙ HE/THEY⠀ANY ,, CST </br>
+ıl IWC ; OSDD ⏖ CPTSD ◜➴ BPD ! 
+Usually afk ◈ c+h & ints welcomed ,, </br>
+ASK 4 FRONT ; no dni, block freely </br> </br>‎ 
+ <p align="center">
 
-Here are some ideas to get you started:
+‎ <p align="center">
+<h2 align="center">  </h2>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+[![image.png](https://i.postimg.cc/hvxxLh1m/image.png)](https://postimg.cc/y31kB156)
+[![Untitled126-20250516032645.png](https://i.postimg.cc/yN0yhh91/Untitled126-20250516032645.png)](https://postimg.cc/p9XjRFq4)
+<p align="center"></p>
