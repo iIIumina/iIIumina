@@ -8,7 +8,7 @@
 
  <p align="center">
 🍗 ⪖ ORI ✙ HE/THEY⠀ANY ,, CST </br>
-ıl IWC ; OSDD ⏖ CPTSD ◜➴ BPD ! 
+ıl IWC ; OSDD ⏖ CPTSD ⋆ BPD ! 
 Usually afk ◈ c+h & ints welcomed ,, </br>
 ASK 4 FRONT ; no dni, block freely </br> </br>‎ 
  <p align="center">
